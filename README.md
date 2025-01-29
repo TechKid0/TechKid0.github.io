@@ -1,1 +1,0 @@
-# TechKid0.github.io
